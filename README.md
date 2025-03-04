@@ -8,8 +8,8 @@ D – Attack Right
 S – Use Soulfire to boost your combo and heal
 
 ### Best to play in fullscreen!
+Try our game: https://rymaka.itch.io/crash-beat
+
 
 ## Crash them in beat!
-
-
 > The game was released in a test build with the support of users Rymaka, HLГ undr hrvst.
