@@ -12,4 +12,4 @@ Try our game: https://rymaka.itch.io/crash-beat
 
 
 ## Crash them in beat!
-> The game was released in a test build with the support of users Rymaka, HLГ undr hrvst.
+> The game was released in a test build with the support of users Rymaka, HLГ undr hrvst, Dicainum
